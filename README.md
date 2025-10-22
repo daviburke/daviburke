@@ -20,9 +20,9 @@ Meu papel é transformar ideias em narrativas visuais impactantes — seja em v�
 
 ## 🌎 Idiomas e formação
 
-- 🇬🇧 **Inglês** — Estudante no Instituto Cultural (formatura prevista para 2027)  
+- **Inglês** — Estudante no Instituto Cultural (formatura prevista para 2027)  
   → Certificação de **fluência e proficiência** ao término do curso.  
-- 🇧🇷 **Português** — Nativo  
+- **Português** — Nativo  
 
 ---
 
