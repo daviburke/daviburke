@@ -14,13 +14,13 @@ Atualmente, possuo um conhecimento básico em programação, mas busco evoluir c
 Tenho grande paixão pelo **audiovisual** e **edição de vídeos**.  
 Sou **certificado em Adobe After Effects e Adobe Premiere Pro**, e já realizei projetos com a **rádio Paiquerê FM**, além de colaborações em **casamentos, aniversários e produções comemorativas**.
 
-Meu papel é transformar ideias em narrativas visuais impactantes — seja em vídeos, animações ou conteúdos digitais.
+Meu papel é transformar ideias em narrativas visuais impactantes — seja em vídeos, animações ou conteúdos digitais e lucro através da criação de conteúdo
 
 ---
 
 ## 🌎 Idiomas e formação
 
-- **Inglês** — Estudante no Instituto Cultural (formatura prevista para 2027)  
+- **Inglês** — Estudante no Instituto Cultural (formatura prevista para 2027)
   → Certificação de **fluência e proficiência** ao término do curso.  
 - **Português** — Nativo  
 
